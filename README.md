@@ -6,7 +6,7 @@ Backend Developer
 
 * 🌍  I'm based in Taipei, Taiwan
 * ✉️  You can contact me at [n960321@gmail.com](mailto:n960321@gmail.com)
-* 🚀  I'm currently working on [Vertiv co.](http://www.vertiv.com/en-asia/)
+* 🚀  I am looking for new job opportunities!
 
 ### Skills
 
